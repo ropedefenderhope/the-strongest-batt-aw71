@@ -1,4 +1,4 @@
-
+the strongest battlegrounds Script secure is the best the strongest battlegrounds Script, featuring no cooldown and auto-upgrade. Safe and powerful
 
 
 
